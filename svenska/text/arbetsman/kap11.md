@@ -197,7 +197,7 @@ Sedan de hade knäböjt tillsammans i bön kom de överens om att Samweli skulle
 
 Sent en natt i juni besökte två kristna missionen; den ene av dem var på flykt för sitt liv för tredje gången. Åt dessa män gav Mr Mackay och Mr Ashe ett brev som de hade skrivit för att det skulle spridas bland de kristna som höll sig gömda. Liksom några av Paulus brev till hans förföljda efterföljare måste det ha gett nytt mod åt mången ensam omvänd! Det löd:
 
-”Till Jesu folk som är i Uganda
+”Jesu folk som är i Uganda
 
 ”Våra vänner! Vi, era vänner och lärare, skriver till er för att sända er ord av uppmuntran och tröst, som vi har hämtat ur brevet från Petrus, {{s:247}}Kristi apostel. I gamla tider blev de kristna hatade, jagade, fördrivna och förföljda för Jesu skull; och så är det också i dag.
 
