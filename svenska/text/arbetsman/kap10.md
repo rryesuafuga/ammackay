@@ -2,11 +2,11 @@
 # Kapitel X
 ## Tre pojkhjältar och en pojktyrann
 
-En natt i oktober 1884 hade Mr O'Flaherty, upptagen med att skriva brev hem, i flera timmar varit den ende som var vaken i missionärernas hem. Från sitt fönster på övervåningen hörde han i midnattsstillheten någon därnere ropa hans namn med dämpad röst: ”*Bwana* Philipo! *Bwana* Philipo.” Han smög sig nerför trappan och fann en infödd kristen tillsammans med en vän, som i skydd av natten hade sprungit dit för att bära fram den nyhet som missionärerna länge hade fruktat att få höra.
+En natt i oktober 1884 hade Mr O’Flaherty, upptagen med att skriva brev hem, i flera timmar varit den ende som var vaken i missionärernas hem. Från sitt fönster på övervåningen hörde han i midnattsstillheten någon därnere ropa hans namn med dämpad röst: ”*Bwana* Philipo! *Bwana* Philipo.” Han smög sig nerför trappan och fann en infödd kristen tillsammans med en vän, som i skydd av natten hade sprungit dit för att bära fram den nyhet som missionärerna länge hade fruktat att få höra.
 
 ”Kung Mutesa är död”, sade de, ”befäst er; missionshuset kommer troligen att plundras, och vem vet hur många som kan bli mördade?”
 
-Mr O'Flaherty gick tillbaka in i huset och väckte Mr Ashe, som en kort tid dessförinnan hade {{s:196}}kommit till Uganda som ny missionär. Mr Mackay var nere i hamnen vid sjön, tolv engelska mil bort, och höll på att se över den nya missionsbåten. Medan de två männen talade och bad tillsammans för att få veta vilket steg som var klokast att ta, hördes då och då trummornas snabba slag, och varje vindstöt som svepte över dalarna bar med sig de kusliga klagoropen från de sörjande vid palatset.
+Mr O’Flaherty gick tillbaka in i huset och väckte Mr Ashe, som en kort tid dessförinnan hade {{s:196}}kommit till Uganda som ny missionär. Mr Mackay var nere i hamnen vid sjön, tolv engelska mil bort, och höll på att se över den nya missionsbåten. Medan de två männen talade och bad tillsammans för att få veta vilket steg som var klokast att ta, hördes då och då trummornas snabba slag, och varje vindstöt som svepte över dalarna bar med sig de kusliga klagoropen från de sörjande vid palatset.
 
 Att döma av hur mycket det klagades vid hovet kunde man tro att den avlidne monarken hade varit mycket älskad av sina undersåtar; men en blick bakom kulisserna före hans död skulle kanske ha lett till en annan uppfattning. Den direkta orsaken till Mutesas död kommer aldrig att bli känd. Somliga sade att arabens medicin hade visat sig vara gift i stället för botemedel, medan andra påstod att kungen hade kvävts till döds av några av sina egna hustrur. Om något av dessa rykten är sant kan vi vara säkra på att de som tog hans liv hörde till dem som sörjde högljuddast.
 

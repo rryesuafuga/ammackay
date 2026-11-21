@@ -24,7 +24,7 @@ Mackay ansåg att klimatet i Uganda var mycket hälsosammare än någonstans på
 
 ”Jag har aldrig sett frukt på ett fikonträd i Uganda. I Kagei fann jag gott om frukt, men där utövas inte konsten att tillverka barktyg.
 
-”Det finns flera sorters matbananer, och av en av dem tillverkas stark dryck.
+”Det finns flera sorters kokbananer, och av en av dem tillverkas stark dryck.
 
 ”Tobak planteras huller om buller bland dessa träd.”
 

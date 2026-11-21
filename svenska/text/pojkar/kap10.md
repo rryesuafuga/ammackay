@@ -20,7 +20,7 @@ Den 4 juni 1878 skriver han: ”Vilken olycksdrabbad mission vår har varit! Jag
 
 ”En sak är säker: detta land kommer för alltid att förbli knappt något annat än vad det är – det mörka, oupplysta Afrika – tills vi kan hitta något enkelt sätt att resa och {{s:114}}transportera saker i det. Mycket få skulle kunna uthärda de prövningar och vedermödor som vi gick igenom tillsammans under de första månaderna i år. Hans bortgång är en stor sorg för mig.
 
-”Efter flera strider med *Ruga-ruga* och försök att ta en rakare väg till sjön befinner jag mig nu i öknen på trettio engelska mil norr om Nguru, eskorterad av män som hör till den store hövdingen i Usonga, som är en framstående man och bror till Mirambo. Jag hoppas vara i Kagei om några dagar. Jag ska (om Gud vill) fara till ön Ukerewe för att träffa kungen som mördade löjtnant Smith och O'Neill.
+”Efter flera strider med *Ruga-ruga* och försök att ta en rakare väg till sjön befinner jag mig nu i öknen på trettio engelska mil norr om Nguru, eskorterad av män som hör till den store hövdingen i Usonga, som är en framstående man och bror till Mirambo. Jag hoppas vara i Kagei om några dagar. Jag ska (om Gud vill) fara till ön Ukerewe för att träffa kungen som mördade löjtnant Smith och O’Neill.
 
 ”Jag har haft en svår solfeber sedan jag lämnade Uyui, men nu är jag helt återställd.”
 
@@ -34,11 +34,11 @@ Vid det här laget var alla hans strumpor utslitna. Följden blev att han fick b
 
 Några anteckningar ur hans loggbok är intressanta här:
 
-”13 juni 1878. – Kom fram till Kagei. Långt samtal med hövdingen Kaduma. Inga nyheter från Uganda, men en arab med många kanoter väntas snart. Lkonge, kung av Ukerewe, är mycket rädd för att vita män ska komma. Han har upprepade gånger skickat bud till Kaduma och frågat: ’Har inte Mackay kommit än?’ Han är rädd att jag ska komma för att hämnas på honom och försäkrar högljutt att han inte hade något otalt med Smith och O'Neill och att massakern orsakades av slavhandlarens förräderi.
+”13 juni 1878. – Kom fram till Kagei. Långt samtal med hövdingen Kaduma. Inga nyheter från Uganda, men en arab med många kanoter väntas snart. Lkonge, kung av Ukerewe, är mycket rädd för att vita män ska komma. Han har upprepade gånger skickat bud till Kaduma och frågat: ’Har inte Mackay kommit än?’ Han är rädd att jag ska komma för att hämnas på honom och försäkrar högljutt att han inte hade något otalt med Smith och O’Neill och att massakern orsakades av slavhandlarens förräderi.
 
 ”14 juni. – Gick ut med Kaduma för att se på *Daisy*, som låg på torra land på stranden, övertäckt med gräs. Fann henne i ett fruktansvärt förfallet skick. Maskineriet också i ett bedrövligt tillstånd. De mest värdefulla verktygen slängda bland spik och smuts och alla förstörda av rost.
 
-{{s:117}}”Därefter besökte jag min innerligt älskade broder doktor Smiths grav. Där står stenröset och gravstenen med inskription, och bredvid ligger graven efter Barker från Stanleys expedition. Jag måste resa en gravsten över våra två kära martyrer, Smith och O'Neill, antingen här eller på Ukerewe.
+{{s:117}}”Därefter besökte jag min innerligt älskade broder doktor Smiths grav. Där står stenröset och gravstenen med inskription, och bredvid ligger graven efter Barker från Stanleys expedition. Jag måste resa en gravsten över våra två kära martyrer, Smith och O’Neill, antingen här eller på Ukerewe.
 
 ”15 juni. – I dag gav sig de män av som skulle till Ukerewe. Jag gav dem ett tydligt budskap till Lkonge, och Kaduma tolkade från swahili till deras språk. Jag sa till dem att kungen inte behövde vara rädd för mig, och att jag, för att skingra hans rädsla för att mina män skulle följa med mig, bad honom skicka en egen kanot efter mig; då skulle jag fara till ön med *hans* män och lämna mitt gevär och alla mina tjänare här.
 
@@ -58,7 +58,7 @@ ack, den vite mannen kommer aldrig tillbaka!’”
 
 Sedan drog de sig tillbaka för att diskutera saken över sin *pombe* (öl), och vid solnedgången var hela byn, från hövdingen ner till mödrar och små barn, fullständigt berusad.
 
-{{s:119}}Efter en resa på två dagar nådde han sitt mål, och sedan han vilat och förfriskat sig kallades han till kungen, som satt i sin *baraza* – ett runt tak som bars upp av ett nätverk av stolpar och var öppet åt alla håll. Lkonge var då bara omkring tjugo år gammal, kraftigt byggd, med alldagliga men inte otrevliga drag. Han var klädd i en grå skyttedräkt, uppenbarligen en gåva från O'Neill, och hade en röd näsduk knuten om huvudet. Hans ben och armar var fullastade med ringar av mässings- och järntråd, och om halsen hängde två band med mycket stora pärlor, det ena svart och det andra vitt.
+{{s:119}}Efter en resa på två dagar nådde han sitt mål, och sedan han vilat och förfriskat sig kallades han till kungen, som satt i sin *baraza* – ett runt tak som bars upp av ett nätverk av stolpar och var öppet åt alla håll. Lkonge var då bara omkring tjugo år gammal, kraftigt byggd, med alldagliga men inte otrevliga drag. Han var klädd i en grå skyttedräkt, uppenbarligen en gåva från O’Neill, och hade en röd näsduk knuten om huvudet. Hans ben och armar var fullastade med ringar av mässings- och järntråd, och om halsen hängde två band med mycket stora pärlor, det ena svart och det andra vitt.
 
 När han såg Mackay närma sig gick han ut för att möta honom, skakade hjärtligt hand med honom och hälsade honom på swahili, som han kunde lite av. Sedan tog han plats på tronen, en stor träpall, platt upptill och nedtill, med ett enda ben i mitten – utskuren, förstås, ur ett enda stycke, för konsten att foga samman trä, annat än genom att sy ihop det, är tyvärr helt okänd i hela Afrika, på längden och tvären.
 

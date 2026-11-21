@@ -2,7 +2,7 @@
 # Kapitel IV
 ## Två mottagningar i det kungliga palatset
 
-Hur hade det gått för resten av den modiga skaran som tillsammans hade gett sig av från England? En grav på en liten ö utanför kusten nära Zanzibar berättade historien om en av dem; och vid Victoriasjöns stränder kunde man på en träskiva ovanför en jordkulle ha läst namnet ”Doktor John Smith”. Ytterligare två ur sällskapet hade återvänt sjuka till sina hem i England. Medan Mr Mackay fortfarande högg, grävde och jämnade till för vägen till Mpwapwa låg de tre andra som återstod av sällskapet i läger vid Victoriasjöns vidsträckta vatten. Det var löjtnant Smith, Mr O'Neill och Mr Wilson.
+Hur hade det gått för resten av den modiga skaran som tillsammans hade gett sig av från England? En grav på en liten ö utanför kusten nära Zanzibar berättade historien om en av dem; och vid Victoriasjöns stränder kunde man på en träskiva ovanför en jordkulle ha läst namnet ”Doktor John Smith”. Ytterligare två ur sällskapet hade återvänt sjuka till sina hem i England. Medan Mr Mackay fortfarande högg, grävde och jämnade till för vägen till Mpwapwa låg de tre andra som återstod av sällskapet i läger vid Victoriasjöns vidsträckta vatten. Det var löjtnant Smith, Mr O’Neill och Mr Wilson.
 
 Till dessa män som tältade vid sjöstranden{{s:71}} kom två mycket hjärtliga brev från den kung som de så ivrigt längtade efter att få träffa. Två gånger dök kanoter upp framför deras läger, och vägvisare kom från Mutesa för att eskortera dem till hans kungarike. Breven hade skrivits på engelska av en svart pojke vid namn Mufta, som hade fått sin utbildning i en kristen skola vid kusten och som Mr Stanley hade lämnat kvar hos Mutesa för att läsa Bibeln för honom. Detta är en kopia av det andra kungliga brevet:
 
@@ -14,7 +14,7 @@ Till dessa män som tältade vid sjöstranden{{s:71}} kom två mycket hjärtliga
 >
 > Detta från mig Mtesa kung av Uganda
 
-Med en så enträgen vädjan från kungen själv är det inte konstigt att två av de vita männen skyndade i väg ensamma till sjöns norra strand, medan Mr O'Neill fick stanna kvar för att vakta förråden och reparera ångslupen.
+Med en så enträgen vädjan från kungen själv är det inte konstigt att två av de vita männen skyndade i väg ensamma till sjöns norra strand, medan Mr O’Neill fick stanna kvar för att vakta förråden och reparera ångslupen.
 
 Det var ungefär en timme efter solnedgången en junidag 1877 när deras båtar ankrade utanför en liten by i Uganda, längst in i en vacker vik. Här lämnades de av sina vägvisare, som gick till kungen för att meddela att de vita männen hade kommit. Snart anlände några av Mutesas främsta män för att{{s:73}} säga att de skulle komma till hans palats tillsammans med den eskort som kungen hade skickat.
 
@@ -74,11 +74,11 @@ Då blev Mutesas hjärta mycket gott. Han tog med sig de vita männen ut på pal
 
 ”I morgon ska mitt folk gå och hämta virke”, och kungen stod vid sitt ord, för redan nästa dag började arbetet.
 
-Ett sådant välkomnande var mycket uppmuntrande. Efter en månads vistelse i den hydda som Mutesa hade byggt åt dem tog löjtnant Smith farväl av Mr Wilson och gav sig av mot sjöns södra ände för att berätta för Mr O'Neill hur kungligt Mutesa hade tagit emot dem. Han räknade med att hjälpa Mr O'Neill att sjösätta missionsbåten och packa förnödenheter. Sedan skulle de tillsammans återvända till Uganda. Men deras förhoppningar infriades aldrig. Medan de befann sig på en av öarna i sjöns södra del blev både Mr Smith och Mr O'Neill hjärtlöst mördade av de infödda.
+Ett sådant välkomnande var mycket uppmuntrande. Efter en månads vistelse i den hydda som Mutesa hade byggt åt dem tog löjtnant Smith farväl av Mr Wilson och gav sig av mot sjöns södra ände för att berätta för Mr O’Neill hur kungligt Mutesa hade tagit emot dem. Han räknade med att hjälpa Mr O’Neill att sjösätta missionsbåten och packa förnödenheter. Sedan skulle de tillsammans återvända till Uganda. Men deras förhoppningar infriades aldrig. Medan de befann sig på en av öarna i sjöns södra del blev både Mr Smith och Mr O’Neill hjärtlöst mördade av de infödda.
 
 Det fruktansvärda beskedet nådde Mr Mackay innan hans oxar och kärror hade kommit fram till Mpwapwa. Hans boskap hade dött med tre och fyra djur om dagen. De mörkhyade invånarna hånade dagligen den vite mannens{{s:83}} misslyckande. Själv hade han just hämtat sig från ännu ett feberanfall. Just i det ögonblicket fick han höra att ytterligare två ur deras skara hade ryckts bort från dem.
 
-Förkrossad, men med fortsatt tro på sin Gud, skrev han till en vän därhemma: ”Vår gode doktor, min egen käre vän sedan många år, gick till sin vila för nio månader sedan, och nu har dessa tappra bröder, Smith och O'Neill, fallit. Vi var åtta som sändes ut – två har skickats hem sjuka och fyra har gått hem! Bara två återstår. Stackars Afrika! När ska det bli ett kristet land i den här takten? Men Gud har andra händer i reserv, som han kommer att föra fram, snabbt och oväntat, och arbetet kommer att gå vidare vare sig vi bryter samman eller inte.”
+Förkrossad, men med fortsatt tro på sin Gud, skrev han till en vän därhemma: ”Vår gode doktor, min egen käre vän sedan många år, gick till sin vila för nio månader sedan, och nu har dessa tappra bröder, Smith och O’Neill, fallit. Vi var åtta som sändes ut – två har skickats hem sjuka och fyra har gått hem! Bara två återstår. Stackars Afrika! När ska det bli ett kristet land i den här takten? Men Gud har andra händer i reserv, som han kommer att föra fram, snabbt och oväntat, och arbetet kommer att gå vidare vare sig vi bryter samman eller inte.”
 
 Eftersom en förmögen arabisk köpman hade mördats tillsammans med missionärerna var Mr Mackay rädd att araberna skulle hämnas på den kung som hade mördat dem. Ivrig att förhindra ytterligare blodsutgjutelse beslöt han att skynda till sjön så fort som möjligt.
 

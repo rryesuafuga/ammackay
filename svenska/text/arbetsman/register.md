@@ -1,0 +1,294 @@
+# Register
+
+- Afrika 2, 31, 39, 83, 191, 218
+  - Central- 27, 30, 58, 224, 263, 272
+  - Syd- 58
+  - Öst- 31, 224, 271
+- Afrikanska blommor och växter 39
+- Afrikanska bärare *se* Bärare
+- Afrikanska djungler *se* Djungler
+- Afrikanska djur 6, 8, 20, 40, 63
+- Afrikanska fåglar och insekter 39, 51, 61, 64, 174
+- Afrikanska hustrur 20, 81, 96, 109, 159, 164–168
+- Afrikanska hyddor 21, 89, 90
+- Afrikanska hövdingar *se* Hövdingar
+- Afrikanska missioner *se* Missioner, afrikanska
+- Afrikanska murare 37
+- Afrikanska pengar 12, 33, 34
+- Afrikanska pojkar 87, 155–158
+- Afrikanska sjukdomar 42, 156; *se även* Feber
+- Afrikanska snickare 37
+- Afrikanska soldater 10, 37, 74, 75, 105, 107, 204
+- Afrikanska sånger 55
+- Afrikanska trummor 7, 20, 45, 77, 79, 116, 132, 179
+- Afrikanskt öl 113, 133
+- Alexandro 237
+- Allah 139, 146, 216
+- Amerikanska yxor 53
+- Amuletter 113, 114, 156, 160, 161, 179, 236
+- Apolo Kagwa 237, 238, 274, 277
+- Araber, arabisk 12, 15–34, 74–89, 101–111, 124, 140–152, 159, 196, 198, 254, 257
+- Ashe, Mr 195, 200, 206–214, 225–251
+- Bagamoyo 36
+- Balikudembe 233, 234
+- Bananer 90, 91, 105
+- *Baraza* 80, 85, 96, 98, 108, 124
+- Barktyg 20, 32, 74, 108, 114, 166, 181, 277
+- Begravning 180, 190–192
+  - av drottning Namasole 179–190
+  - av Philipo 166
+- Bibeln 4, 15–19, 71, 77, 78, 81, 104, 108, 120, 123, 128, 148, 159, 170, 221, 225, 246–253, 260
+- Blåsbälgar 32, 93
+- Borup, Mr 275
+- Boskap 6, 87, 116, 146, 147, 173, 192, 260
+- Brev 3, 4, 23–25, 29, 47, 49, 71, 72, 77, 78, 154, 205, 246, 267
+- Broar, brobygge 55, 57, 58
+- Brännande av kristna 216, 217, 234, 239–242
+- Bärare 34–38, 43, 49–52
+- Böcker 266
+  - förstörda 257
+- Böcker av träskivor 15
+- Bödlar 210, 216, 234
+- Böner
+  - hedniska 113, 179
+  - kristna 23, 116, 153, 218, 228
+- Chambarango 16
+- Civiliserade folk 14
+- Clark, Mr 25
+- *Daily Telegraph* 1, 19, 47, 273
+- Daudi Chwa, kung 277
+- Deekes, Mr 268
+- Djungler 2, 40, 43, 46, 54, 84
+- Djur *se* Afrikanska djur
+- Dop 108, 109, 155, 243
+- Drottningmodern 115, 129, 254
+- Drömmar 6, 7, 137, 164
+- Dumulira 156, 157
+- Död
+  - bland infödda kristna 157, 162, 163, 166, 214–219, 234–243, 248
+  - bland missionärer 30, 36, 82, 84, 226, 232, 269
+- Edinburgh 25, 29
+- Edwardo 158
+- Egypten 3, 80, 99, 203, 272
+- Elefantbetar *se* Elfenben
+- Elfenben 5, 6, 12, 17, 32, 102, 109, 111, 147
+- Engelsk, engelska 57
+  - folket 87, 95, 144, 152, 203
+  - guvernör 263
+  - handyxor 53
+  - missionärer 76, 105, 106, 110, 136, 233, 257
+  - soldater 3, 80, 203
+  - språket 41, 71, 77, 97
+- England 3, 4, 21, 24, 49, 59, 70, 77, 80, 90, 98, 99, 110
+- Europa, europeisk 66, 135, 146, 191
+- Evangelierna 101, 156, 157, 221, 252, 261
+- Fabel om en katt 150–152
+- Feber 1, 42–51, 59, 83, 84, 225, 268, 269
+- Flaggor, flaggstång 7, 60, 61, 101, 252
+- Franska missionärer 104, 105, 110, 143, 144, 149, 228, 233, 257, 259
+- Fåglar *se* Afrikanska fåglar och insekter
+- Gabunga 126, 132, 232
+- Gevär, krut 7, 32, 74, 76, 101, 130, 206, 207, 223, 226
+- Glaspärlor, pärlpengar 12, 32, 34
+- Gordon, Cyril, pastor 256, 258, 265
+- Gordon, general 80, 99, 271
+- Gud 3, 4, 13, 14, 24, 31, 56, 69, 78, 83, 95, 100, 108, 118–130, 142, 153, 161, 193
+- Gudar, hedniska 112, 119–122, 235
+- Guld och silver 147
+- Gyllene regeln 5
+- Gåvor 8, 79
+- Hackor 94
+- Hannington, biskop 224–228, 232
+- Hartwell, Mr 37
+- Hedningar 10, 100
+  - religion 10–12, 105, 116, 129, 135
+- Herrens bön 5, 159
+- *Honga* 43–46, 58
+- Hundar 37, 52, 60, 63, 145
+- *Hur jag fann Livingstone* 29
+- Hus, hyddor 5, 21, 75, 80, 88, 91, 147, 173–175, 186, 225, 260, 266
+- Hutchinson, Mr 23
+- Huvudstäder 72, 73, 85, 115, 207, 274
+- Hyddor *se* Hus, hyddor
+- Hängmatta för resor 46, 66
+- Hövdingar 9, 20, 43–45, 57, 72, 76, 79, 89, 93, 98, 106, 107, 122, 124, 159, 169, 178, 179, 197, 199, 228–230
+- Indiska
+  - arbetare 33
+  - köpmän 33
+- Insekter *se* Afrikanska fåglar och insekter
+- Jesus Kristus 14, 16, 79, 101, 104, 147, 148, 155, 161, 192
+- Jordbruk 172, 173
+- Jul 101, 111, 190
+- Järnvägar 28, 273
+- Kaffeodling 173
+- Kagei 72, 84, 120
+- Kakumba 213–216
+- Kalema, kung 256
+- Kalikå 12, 40, 41, 181–189
+- Kanoter 6, 71, 258, 265
+- Karavaner 3, 36–46, 50
+- Karta över Afrika, gåva till Mutesa 79
+- Katedralen 275–279
+- *Katikiro* 17, 133, 165, 192, 199, 201, 208–212, 222, 235; *se även* Premiärminister
+- Katolsk, katoliker 104, 228, 248
+- Kaurisnäckor 105, 136, 172, 277
+- Kauta 17, 187
+- Kidza 214, 217
+- Kistor 181
+- Klimat 20, 46–52
+- Kokbananer 73, 116, 166, 173, 185, 198
+- Koppar till kistan 182–184
+- Koranen 16, 18, 109, 138, 140, 193, 254
+- Kristen, kristna 5, 27, 28, 95, 104, 108, 153–169, 233, 248, 256
+  - flickor 233
+  - hövdingar 213, 232
+  - lära 98–104
+  - pojkar och ynglingar 154–163, 204–208, 212–219, 233, 265
+  - religion 14–19, 104, 116, 129, 135, 146
+- Kristus *se* Jesus Kristus
+- Kungen *se* Mutesa, kung; Mwanga, kung
+- Kyambalango 182, 192
+- Kyrkliga missionssällskapet 22–26, 77
+  - sekreterare 22, 23, 29, 49, 158
+- Kyrkor, inhemska 157, 158, 220, 239–249, 274
+- Kärror, kärrpråm 58–68, 82, 84
+- Köpmän 33
+- Laterna magica 33, 93
+- Liknelser som lästes upp 103, 104
+- Litchfield, Mr 106, 154
+- Livingstone, David 10, 270
+- London 1–3, 19, 22, 29, 77, 273
+- Lugalama 213–218
+- Luganda 81, 97, 154, 170
+- Lukonge 72, 121, 231
+- Läger 44, 45, 52, 59, 70, 71
+- Läkare, kristna 28, 66, 90, 115, 251
+- Mackay, Alexander 26–30, 36–70, 82–279
+  - arbete 170, 171, 222, 241, 251, 252, 265
+  - avskedsord 30
+  - behov och resa till Uyui 136, 137, 140
+  - feber och återvändande till kusten 42–48
+  - får brev från den förste omvände 154, 155
+  - gräver en brunn 175–177
+  - gudstjänster och samtal i palatset 98–110, 117–131, 190–194, 222, 223, 241, 242
+  - gör vägen färdig 52–58
+  - krafterna sviker under marschen inåt landet 60–66
+  - lyckad start från Zanzibar 36, 37
+  - missionen i Usambiro 258–269
+  - motarbetas av muslimer 141–152
+  - namnet han fick 171
+  - nytt hus byggs 174, 175
+  - olika feberanfall och det sista, dödliga 51, 83, 84, 175, 176, 268, 269
+  - pojkår 26, 27
+  - skaffar fler bärare 49–51
+  - skyndar till Victoriasjön 82–85
+  - sköter drottning Namasoles begravning 179–190
+  - slutar använda kärror 67–69
+  - tas emot av Mutesa 86, 87
+  - tidiga missionsplaner 28
+  - tillverkar många saker 93, 170, 178, 251
+  - tryckeriarbete 107, 170, 252, 260
+  - undervisning 170, 251
+  - verkstäder 93, 265
+  - vädjar till Mutesa 193
+  - översätter Bibeln 170, 251, 252, 261
+- Madagaskar 28
+- Mapera 144, 145
+- Martyrer 28, 214–218, 226, 248
+- Maskiner 28, 37, 265
+- Masudi 190, 191, 193
+- Mat 33, 40–43, 46, 51, 60, 73, 84, 87, 88, 96, 105, 116, 136, 172
+- Medicin 32, 84, 125, 126, 162, 179, 251, 257
+- Mengo 207
+- Missioner, afrikanska 47, 82, 90, 91, 224–228, 255–279
+- Missionsbåtar 82, 196–205, 261, 262
+- Missionshus 82, 88, 90, 173–175, 199, 220, 255, 266
+- Missionsskolor 82, 88
+- Missionärer 10, 25–31, 80, 88, 90–93, 98, 104–106, 130, 220, 221, 270, 273; *se även* Franska missionärer; Katolsk, katoliker
+- Mose 16, 120
+- Mpwapwa 42, 43, 46, 47, 50, 56, 58, 70, 82, 84
+- Mufta 71, 77, 146
+- Muhammed 12, 13, 16, 138, 139
+- Mujasi 204–219
+- Mukasa 111–134, 158
+  - två unga män med samma namn 158, 163
+- Muslimer 257
+- Muslimsk
+  - bok *se* Koranen
+  - böner 138–140, 146, 164
+  - dräkt 13
+  - religion 12, 13–18, 105, 129, 135, 145, 146, 164, 254
+  - sabbat 4, 13
+- Mutesa, kung 4–26, 71–200
+  - ber om missionärer 19
+  - brev med uppmaning att skynda sig 71, 72
+  - brev till honom 77–79
+  - familjemedlemmar som var välvilligt inställda till kristendomen 169, 228, 236
+  - gudstjänster i palatset 98
+  - gåva till Stanley 8
+  - gåvor till missionen 82, 87–90, 171, 172
+  - hustrur 20, 81, 103, 115, 196
+  - klädsel 9
+  - kommer med undanflykter 193
+  - lidande och död 194, 195
+  - lovar att upphöra med slavhandeln 102
+  - moderns begravning 179–190
+  - mottagningar i palatset 8, 9, 76–82, 86–88, 132–134
+  - palats 9, 73, 75, 76, 98, 116, 179
+  - presenter från missionärerna 79, 85–87
+  - påstådd grymhet 20
+  - sjukdom 106, 115–134, 140, 194
+  - styrs av sina impulser 108–110
+  - ”vackra ord” 94, 95
+- Mwanga, kung 200–260
+  - blir grym och tyrannisk 200, 233–238
+  - bryter sitt löfte och låter döda kristna 242, 243
+  - present till honom 228–230
+  - söker Mackays hjälp i landsflykten 259
+  - vållar biskop Hanningtons död 224–227
+- Mwira 167, 168
+- Människooffer 190, 192, 197
+- Mössor, röda 32, 34, 74, 76
+- Namasole, drottning 179–190
+- Nattvardsgudstjänst 204
+- New England-staterna 9
+- Nilen 3
+- Nua 232, 239, 240
+- Näsdukar 32–34
+- O’Flaherty, Mr 146–149, 154–167, 171, 180, 195, 227, 232
+- Omvända 248, 267; *se även* Kristen, kristna
+- O’Neill, Mr 25, 70, 72, 82
+- Oxar 52, 58–68, 82, 178
+- Packbalar 35–37
+- Palatset 9, 73, 75, 76, 101, 107, 132, 211, 228
+- Palmer 73
+- Parker, biskop 269
+- Pearson, Mr 106, 107, 137, 146, 152, 154
+- Pengar *se* Afrikanska pengar; Kaurisnäckor
+- Pesten 156, 162
+- Philipo 158, 163–166, 210
+- Pojkar *se* Afrikanska pojkar
+- *Pombe* 12, 15, 44, 73
+- Premiärminister 9, 121; *se även* Katikiro
+- Processioner 36, 74, 132
+- Protestantisk, protestanter 104, 137, 248
+- Pump 175, 176
+- Pärlor 147
+- Regn, regntid 49, 59, 61, 64
+- Sjukdomar *se* Afrikanska sjukdomar
+- Slipstenar 32, 53, 93
+- Speldosor 33, 34, 149
+- Staket av tigergräs 74, 75, 91, 107, 260
+- Storbritannien 60; *se även* England; Engelsk, engelska
+- Tolkar 14, 37, 41, 77, 79, 80, 118, 119, 121, 170, 261
+- Trosbekännelsen 159
+- Trummor *se* Afrikanska trummor
+- Tryckning, tryckpress 33, 107, 136; *se även* Mackay, Alexander, tryckeriarbete
+- Tyg 32, 34, 37, 44, 45, 101, 192, 211, 223
+- Tyskar 203
+- Tyskland 26
+- Ugandas flotta 10
+- Upptäckter 27
+- Victoria, drottning 1, 106, 109, 149, 231
+- Äldste 220, 239
+- Överhuset 9

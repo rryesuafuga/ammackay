@@ -10,7 +10,7 @@ och så höll de lovtal över honom.”
 — J. G. Percival
 :::
 
-Mackay gjorde flera andra resor till Nyanzas södra sida under år 1884. Vid ett tillfälle hade han inte kunnat få några matbananer ombord i hamnen Ntebe, och därför försökte han och hans män lägga till vid den stora ön Sesse för att köpa några. Men de infödda mötte dem med att vilt svänga spjut och sköldar, och det var med nöd och näppe som de lyckades hålla sig utom räckhåll för stenarna som slungades mot den lilla farkosten. Han berättar: ”Vi höll upp kaurisnäckor och sade att vi bara ville köpa mat, eftersom vi var mycket hungriga, men de bara skrek att vi inte fick gå i land och fortsatte att kasta sten och dansa vilt. Fler infödda kom ner från kullen och stämde in i hoten och sade ’att de skulle döda oss’. De var nu många, och de tände eldar på stranden och slog på sina trummor och gjorde sig beredda att vaka{{s:254}} hela natten. Jag förbjöd mina båtmän att svara på deras förolämpningar och kastade lugnt ankar för natten. De skrek alltså förgäves. På morgonen bad jag dem att komma ut med mat i en kanot och sälja till oss, om de var rädda för att vi skulle gå i land, men det gjorde de inte.
+Mackay gjorde flera andra resor till Nyanzas södra sida under år 1884. Vid ett tillfälle hade han inte kunnat få några kokbananer ombord i hamnen Ntebe, och därför försökte han och hans män lägga till vid den stora ön Sesse för att köpa några. Men de infödda mötte dem med att vilt svänga spjut och sköldar, och det var med nöd och näppe som de lyckades hålla sig utom räckhåll för stenarna som slungades mot den lilla farkosten. Han berättar: ”Vi höll upp kaurisnäckor och sade att vi bara ville köpa mat, eftersom vi var mycket hungriga, men de bara skrek att vi inte fick gå i land och fortsatte att kasta sten och dansa vilt. Fler infödda kom ner från kullen och stämde in i hoten och sade ’att de skulle döda oss’. De var nu många, och de tände eldar på stranden och slog på sina trummor och gjorde sig beredda att vaka{{s:254}} hela natten. Jag förbjöd mina båtmän att svara på deras förolämpningar och kastade lugnt ankar för natten. De skrek alltså förgäves. På morgonen bad jag dem att komma ut med mat i en kanot och sälja till oss, om de var rädda för att vi skulle gå i land, men det gjorde de inte.
 
 ”Att Baganda i århundraden har vanstyrt och plundrat dem har naturligt nog gjort de stackars människorna angelägna om att hålla alla främlingar borta. Bara för en vecka sedan gick Mugula i land på just den här ön med femtio kanoter och möttes av stenar. Han sköt ett halvdussin av invånarna och plundrade deras odlingar. Men *Mirembe* är ingen stridsbåt. Gud, ge oss takt och klokhet att handla tålmodigt, även när vi blir utmanade och är hungriga. Han ska ge oss vårt dagliga bröd.
 
@@ -24,7 +24,7 @@ Kung Mtesa hade varit sjuklig i flera år och hade på sistone blivit allt svaga
 
 Han förblev vänligt sinnad mot CMS-missionärerna, men till deras stora sorg visade han inga tecken på att hans hjärta hade förvandlats.
 
-Katikiron (premiärministern och domaren) var också mycket vänlig, liksom flera av de andra hövdingarna; men somliga skulle helst ha velat förvisa varenda utlänning ur riket.
+*Katikiron* (premiärministern och domaren) var också mycket vänlig, liksom flera av de andra hövdingarna; men somliga skulle helst ha velat förvisa varenda utlänning ur riket.
 
 I ett brev hem skriver Mackay: ”Vår framtid ligger i Guds händer allena, men jag anser att vi har rätt att använda alla lagliga medel för att försöka trygga skydd för vår mission om en nödsituation skulle uppstå.
 
@@ -46,23 +46,23 @@ Nästa dag kom en budbärare och berättade för honom om den sorgliga händelse
 
 Olyckligtvis hade han nu bara få män hos sig, men efter många timmars hårt arbete sjösattes båten, förankrades nära stranden och allt nödvändigt fördes{{s:258}} ombord. Han räknade helt med att missionshuset skulle förstöras och att bröderna skulle bli tvungna att söka tillflykt på sjön. Han vakade hela natten men fick inga nyheter om dem.
 
-Nästa dag kom en skara på hundra beväpnade män från katikiron för att eskortera honom till palatset, eftersom katikiron ville att kungens kistor skulle tillverkas genast.
+Nästa dag kom en skara på hundra beväpnade män från *katikiron* för att eskortera honom till palatset, eftersom *katikiron* ville att kungens kistor skulle tillverkas genast.
 
 Det som följer är med hans egna ord: ”Nådde Kitebi efter mörkrets inbrott. Eskorten vågade inte föra mig längre av rädsla för strid, eftersom många kunde uppfatta det som ett försök att ta tronen om jag kom till huvudstaden nattetid med en väpnad styrka. Sov i ett mycket smutsigt hus, men folket var mycket vänligt och gjorde allt för att jag skulle ha det bekvämt.
 
 ”12 oktober. – Nådde palatset tidigt. Den stora gården och platsen utanför fyllda med nybyggda hyddor.
 
-”Den döde låg på lit de parade i Kadulubares hus (det största inom området), medan en grav grävdes mitt i byggnaden. Tusentals kvinnor jämrade sig och män vrålade. Katikiron och hövdingarna sade till mig att Mtesa hade uttryckt en önskan att bli begravd utan dröjsmål och utan ståt. De ville därför göra som han önskat och genast sätta den nye kungen på tronen för att lugna landet. Den nye kungens första handling är att begrava sin far. Han är inte kung förrän dess.
+”Den döde låg på lit de parade i Kadulubares hus (det största inom området), medan en grav grävdes mitt i byggnaden. Tusentals kvinnor jämrade sig och män vrålade. *Katikiron* och hövdingarna sade till mig att Mtesa hade uttryckt en önskan att bli begravd utan dröjsmål och utan ståt. De ville därför göra som han önskat och genast sätta den nye kungen på tronen för att lugna landet. Den nye kungens första handling är att begrava sin far. Han är inte kung förrän dess.
 
 ”De ville ha tre kistor tillverkade omedelbart, men gick till sist med på att låta två räcka.”
 
 Mackay gick till missionshuset för att hämta sina verktyg{{s:259}} och zinkfodret från några gamla lådor som hade skickats dit från England med förnödenheter. Sedan återvände han till palatset och satte genast i gång med arbetet tillsammans med en mängd inhemska hantverkare. I gryningen nästa morgon var de väldiga kistorna färdiga, till allas belåtenhet, och kungen lades i dem och begravdes.
 
-Sedan valdes en prins. Katikiron och några andra ville välja en liten pojke, men de insåg snart att hans utnämning skulle mötas med uppror. De valde därför Mwanga, en yngling på omkring sjutton år, som var sin fars avbild.
+Sedan valdes en prins. *Katikiron* och några andra ville välja en liten pojke, men de insåg snart att hans utnämning skulle mötas med uppror. De valde därför Mwanga, en yngling på omkring sjutton år, som var sin fars avbild.
 
 Missionärerna var tacksamma över att denne unge man, som de kände väl eftersom han ofta hade besökt deras hus, hade valts till kung, och de blev ännu mer tacksamma när nyheten nådde dem att den prinsessa som valts till *Lubuga*[^1] eller jungfrudrottning var en av deras kristna, döpt till Rebecca.
 
-Några av hövdingarna föreslog att man skulle plundra både araberna och missionärerna, men katikiron höll dem tillbaka. Mackay säger: ”Vår himmelske Fader har vakat över oss under denna farofyllda tid, medan vi själva har varit hjälplösa. Hans heliga namn vare lovat!”
+Några av hövdingarna föreslog att man skulle plundra både araberna och missionärerna, men *katikiron* höll dem tillbaka. Mackay säger: ”Vår himmelske Fader har vakat över oss under denna farofyllda tid, medan vi själva har varit hjälplösa. Hans heliga namn vare lovat!”
 
 Mr Ashe berättar hur han vid ett tillfälle, sedan han hade undervisat Mwanga en stund, frågade honom ”hur han skulle behandla sina gamla vänner missionärerna om han{{s:260}} blev kung?” Svaret blev: ”Jag kommer att tycka mycket om er och visa er all ynnest”; men knappt hade han bestigit tronen förrän han glömde sitt löfte.
 
@@ -72,11 +72,11 @@ Eftersom kungen bara bodde i tillfälliga kvarter och dagligen var upptagen med 
 
 En dag blev han förskräckt när Bavuma, som hade hört om Mtesas död, gav sig ut och plundrade trakten vid buktens mynning. Han fruktade att de skulle ta sig längre upp och få syn på båten, som var ganska iögonfallande eftersom den var vit och hade en svart skogsudde i bakgrunden. Därför lät han sina män hugga gröna grenar och spärrade landningsplatsen med dem.
 
-Efter tio dagar återvände han till huvudstaden och mötte på vägen Mr Ashe, som berättade att somliga under hans frånvaro hade anklagat honom för att ha gett sig av utan att träffa kungen, medan araberna påstod att han stal matbananer och förskansade sig ute på sjön. Ryktet var allmänt spritt, och Mwanga hade gett order om att hans rörelser skulle stävjas.
+Efter tio dagar återvände han till huvudstaden och mötte på vägen Mr Ashe, som berättade att somliga under hans frånvaro hade anklagat honom för att ha gett sig av utan att träffa kungen, medan araberna påstod att han stal kokbananer och förskansade sig ute på sjön. Ryktet var allmänt spritt, och Mwanga hade gett order om att hans rörelser skulle stävjas.
 
 Några utdrag ur hans loggbok är intressanta här:
 
-”5 november. – Vi gick alla tre till katikiron, som avtalat, och tog med en gåva av fyra goda *jorah*.{{s:261}} Vi tackade honom för hans goda styre av landet under den kritiska tid som har varit.
+”5 november. – Vi gick alla tre till *katikiron*, som avtalat, och tog med en gåva av fyra goda *jorah*.{{s:261}} Vi tackade honom för hans goda styre av landet under den kritiska tid som har varit.
 
 ”6 november. – Ashe och jag gick till hovet och tog med en gåva till kungen: tre *jorah* fint tyg och ett paraply. Fann honom mitt i en audiens, men mycket högdragen. Han bar ett praktfullt leopardskinn. Vid hans sida låg det magiska hornet (en vit elfenbensbete), i handen hade han en liten spegel, och en större var placerad framför honom. Han gick snart, men befallde oss att stanna kvar för att träffa honom enskilt.
 
