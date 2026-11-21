@@ -20,7 +20,7 @@ Den 4 juni 1878 skriver han: ”Vilken olycksdrabbad mission vår har varit! Jag
 
 ”En sak är säker: detta land kommer för alltid att förbli knappt något annat än vad det är – det mörka, oupplysta Afrika – tills vi kan hitta något enkelt sätt att resa och {{s:114}}transportera saker i det. Mycket få skulle kunna uthärda de prövningar och vedermödor som vi gick igenom tillsammans under de första månaderna i år. Hans bortgång är en stor sorg för mig.
 
-”Efter flera strider med *Ruga-ruga* och försök att ta en rakare väg till sjön befinner jag mig nu i den trettio engelska mil breda öknen norr om Nguru, eskorterad av män som hör till den store hövdingen i Usonga, som är en framstående man och bror till Mirambo. Jag hoppas vara i Kagei om några dagar. Jag ska (om Gud vill) fara till ön Ukerewe för att träffa kungen som mördade löjtnant Smith och O'Neill.
+”Efter flera strider med *Ruga-ruga* och försök att ta en rakare väg till sjön befinner jag mig nu i öknen på trettio engelska mil norr om Nguru, eskorterad av män som hör till den store hövdingen i Usonga, som är en framstående man och bror till Mirambo. Jag hoppas vara i Kagei om några dagar. Jag ska (om Gud vill) fara till ön Ukerewe för att träffa kungen som mördade löjtnant Smith och O'Neill.
 
 ”Jag har haft en svår solfeber sedan jag lämnade Uyui, men nu är jag helt återställd.”
 
@@ -48,7 +48,7 @@ Några anteckningar ur hans loggbok är intressanta här:
 
 Alla infödda i trakten kring Kagei {{s:118}}avrådde enträget Mackay från att lita på Lkonge, eftersom de var säkra på att han hade förräderi i sinnet och skulle förgifta honom. De berättade att kungen, sedan Mackays bröder hade fallit, övertalade deras följeslagare att lägga ifrån sig sina vapen och sätta sig ner i fred, eftersom han inte tänkte göra dem något ont. Wangwana trodde honom och började laga sin mat, men då anföll han dem och dödade många. Mackay skriver: ”Jag känner att det är ett tvivelaktigt steg att stoppa huvudet rakt in i lejonets gap; men vårt mål är att kristna Ukerewe lika väl som Uganda, och ju förr Lkonge och vi blir försonade igen, desto bättre. Gud kan stänga lejonets gap, och det är enbart i hans tjänst som jag far till Ukerewe. Mina män är rädda för att följa med och har bett mig att inte befalla dem att följa mig.”
 
-Till slut, den 28 juni, gick han ombord på en stor kanot. Paddlarnas glada sång, det nya och ovana i allt omkring honom och uppdragets äventyrliga natur satte honom på strålande humör. Invånarna stod på stranden och såg efter kanoten tills den försvann ur sikte
+Till slut, den 28 juni, gick han ombord på en stor kanot. Paddlarnas glada sång, det nya och ovana i allt omkring honom och uppdragets äventyrliga natur satte honom på strålande humör. Invånarna stod på stranden och såg efter kanoten tills den försvann ur sikte:
 
 ::: vers
 ”och sjöng sin enkla sång, som dödsandens klagan:
@@ -114,7 +114,7 @@ Arbetet med att reparera båten hindrades svårt av vädret. På morgnarna var d
 
 Den 6:e nådde de huvudstaden (Rubaga), men kungen var för sjuk för att ge audiens. Han skickade dock sina hälsningar och två mycket stora, feta getter. Mackay skriver:
 
-”Fredag 8 november. – Händelserik dag. Bud kom att kungen satt i sin *baraza* och att Wilson och jag genast skulle komma. Vi gav oss i väg och bar själva våra gåvor, eftersom de lättretliga kurirerna knappast gick att övertala att bära de få sakerna.
+”Fredag 8 november. – Händelserik dag. Bud kom att kungen satt i sin *baraza* och att Wilson och jag genast skulle komma. Vi gav oss i väg och bar själva våra gåvor, eftersom de lättupphetsade kurirerna knappast gick att övertala att bära de få sakerna.
 
 ”Budbärare efter budbärare kom springande som galningar för att skynda på oss, men jag var fast besluten att inte ge {{s:127}}efter för de här upphetsade kurirernas vilda beteende och höll en stadig takt. Till slut kom vi ut på den stora esplanaden, som löper från öster till väster längs krönet av kullen och slutar vid palatset i västra änden – där modets lag tycks gälla världen över. Portarna öppnades, högvakten skyldrade gevär, och vi gick vidare mellan de dubbla leden av vakter in i en stor hall, tätt kantad av hovfolk. I bortre änden fanns en dörr, genom vilken vi fördes in inför kungen. Där satt han på en matta, klädd i en lång vit dräkt och en lång svart rock rikt broderad med guldgaloner. Han bugade artigt, och pallar bars fram åt oss att sitta på, medan några turkiskt klädda tjänare satt på huk på marken. En gammal kvinna satt en bit bakom kungen och iakttog oss uppmärksamt. I tio minuter betraktade vi varandra under dödstystnad; sedan började ett litet samtal. Våra gåvor överlämnades, och speldosan stämde upp den sköna melodin ’Himlarna vittnar’ ur Haydns *Skapelsen*.
 
