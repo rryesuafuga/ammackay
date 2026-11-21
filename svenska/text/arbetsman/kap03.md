@@ -54,9 +54,7 @@ Landets invånare var till hälften glada och till hälften oroliga över denna 
 
 När vägen var färdig återvände Mr Mackay och hans män till kusten. ”Nu”, tänkte han, ”är vi redo att resa på ett civiliserat sätt. Vi ska köpa oxar och kärror som kan frakta vårt bagage, och vi kommer att nå Mpwapwa på halva den tid det tog oss förut. Försöket har gjorts med stor framgång i Sydafrika av andra; varför skulle inte vi kunna lyckas i Centralafrika?”
 
-Med stor entusiasm började han förbereda resan, men återigen fann han att han hade en svår uppgift framför sig. För det första måste oxarna, som aldrig tidigare hade{{s:59}} spänts för några kärror, vänjas vid oket.
-
-Inte heller gick det att hitta män som någonsin tidigare hade kört oxar, så nybörjare måste läras upp. Det var svårare, sade Mr Mackay, än att lära oxarna att dra.
+Med stor entusiasm började han förbereda resan, men återigen fann han att han hade en svår uppgift framför sig. För det första måste oxarna, som aldrig tidigare hade{{s:59}} spänts för några kärror, vänjas vid oket. Inte heller gick det att hitta män som någonsin tidigare hade kört oxar, så nybörjare måste läras upp. Det var svårare, sade Mr Mackay, än att lära oxarna att dra.
 
 Dessutom tvingades de slå läger på en mycket ohälsosam plats. Uppe i hans gamla läger på kullen dog många av oxarna av tsetseflugans giftiga stick, och Mr Mackay måste flytta ner till slätten med sina män, sina hjordar och sin boskap. Under minst två månader innan de gav sig av på resan regnade det nästan varje dag. Slätten förvandlades till ett enda gungfly, och upplärningen av oxar och män fick avbrytas.
 

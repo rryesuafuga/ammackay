@@ -40,7 +40,7 @@ Mycket sällan var ”den vite arbetsmannen” ovälkommen vid hovet när han ha
 
 Kungen skrattade och sade: ”Det tror jag inte.” Naturligtvis skrattade hövdingarna också, som de alltid gjorde när kungen skrattade.
 
-{{s:179}}”Är det inte så”, frågade Mackay, ”att lärjungen oftast blir visare än sin lärare? Skickligheten hos *Bazungu* i dag är mycket större än deras skicklighet för ett år sedan, och i morgon kommer de att gå längre än dagens visdom. Eleven står på axlarna av den som undervisade honom. Han ser allt som hans mästare ser, och dessutom mycket längre.” Alla verkade förtjusta över tanken. Några ögonblick senare, när hovet upplöstes, skakade många av hövdingarna hjärtligt hand med Mr Mackay.
+{{s:179}}”Är det inte så”, frågade Mackay, ”att lärjungen oftast blir visare än sin lärare? Skickligheten hos *Bazungu* i dag är mycket större än deras skicklighet för ett år sedan, och i morgon kommer de att överträffa dagens visdom. Eleven står på axlarna av den som undervisade honom. Han ser allt som hans mästare ser, och dessutom mycket längre.” Alla verkade förtjusta över tanken. Några ögonblick senare, när hovet upplöstes, skakade många av hövdingarna hjärtligt hand med Mr Mackay.
 
 Berömmelsen kring ”den vite arbetsmannen” nådde sin höjdpunkt när han med framgång tjänstgjorde som likbesörjare åt kungens mor, Namasole. Medan hon låg sjuk i feber vägrade hon att ta någon av den vite mannens mediciner, och hon tillät inte heller att någon som bar kalikå eller något annat utländskt kom i hennes närhet, så fast var hon vid sina gamla hedniska seder. De inhemska medicinmännen bar fram sina amuletter till hennes sjukbädd och mässade sina böner över henne, men hon blev bara sämre.
 
