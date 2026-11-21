@@ -64,7 +64,7 @@ Eftersom Mackay var närvarande den morgonen fick han tillfälle att tala. I all
 
 Några dagar senare tog Mr Mackay med sig en bok i fysiologi till palatset. Med hjälp av bilder visade han kungen kroppens olika delar och hur blodet cirkulerar genom dem alla. Han förklarade många saker för att Mutesa skulle se hur underbart fulländad människokroppen är, och att ingen människa eller grupp av människor i hela världen någonsin skulle kunna göra en sådan. ”Ändå”, sa han, ”vill araberna köpa dessa fulländade kroppar, med odödliga själar inom sig, för en tygtrasa var, som en enda man kan tillverka på en dag.”
 
-Mutesa blev övertygad om att det var fel och påbjöd att från den stunden fick ingen i hans rike sälja en slav, vid dödsstraff.
+Mutesa blev övertygad om att det var fel och påbjöd att ingen i hans rike från den stunden fick sälja en slav, vid dödsstraff.
 
 ”Det bästa påbud ni någonsin har utfärdat, kung Mutesa”, sa Mr Mackay. Men tyvärr var det en sak för Mutesa att utfärda ett påbud och en helt annan att se till att hans ord troget efterlevdes.
 

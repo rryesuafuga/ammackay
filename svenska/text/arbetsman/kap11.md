@@ -46,7 +46,7 @@ Samtalet inleddes med att Mwanga {{s:229}}sade: ”Vad betyder gåvan som ni har
 
 ”Har jag ’ätit Uganda’ först i dag (har jag bestigit tronen först i dag)? Varför ge den till mig nu och inte för länge sedan?”
 
-Därefter talade de en stund om ett gevär som Mackay hade reparerat. Sedan återkom Mwanga till sin första fråga. ”Nå, gåvan då – vad är den till för?”
+Därefter talade de en stund om ett gevär som Mackay hade hållit på att reparera. Sedan återkom Mwanga till sin första fråga. ”Nå, gåvan då – vad är den till för?”
 
 ”Vi trodde att du var arg på oss, eftersom du vägrade att ta emot oss när vi kom för att träffa dig”, svarade Mackay.
 
